@@ -1,6 +1,6 @@
 <div align="center">
 
-### 🌐 [guritso.site](https://guritso.site)
+### 🌐 [unavailable](#)
 
 ---
 
